@@ -1,2 +1,0 @@
-# JK-KIND-JAIDEE
-allvpn
